@@ -1,16 +1,15 @@
 # shopping
 Search and compare shopping sales online
 
-[Winter Sale coupon! $15 OFF $150 site-wide code: WINTER10LITB (10/15-12/31)](http://www.dpbolvw.net/click-3813210-12348979-1442973600000)
+Easy backup & system recovery with flexible restoration! <a href="https://www.jdoqocy.com/click-101223348-12644849" target="_top">Buy now!</a><img src="https://www.lduhtrp.net/image-101223348-12644849" width="1" height="1" border="0"/>
 
-[Affiliate Exclusive - $6.99 + Free Shipping on WIDELY USED Car Kit MP3 Player FM Transmitter LCD Backlight Display Remote Control USB SD MMC Slot](http://www.kqzyfj.com/click-3813210-12433946-1449000807000)
+<a href="https://www.anrdoezrs.net/click-101223348-13984494" target="_top">Data safety made simple for novice users and experts alike. Manage your disks and systems, protect your data and ensure the operability of your computer.</a><img src="https://www.awltovhc.com/image-101223348-13984494" width="1" height="1" border="0"/>
 
-[Affiliate Exclusive - $3.99 + Free Shipping on Inear Headphone for Smartphone iPhone Samsung with coupon code: AAAA valid until 12/31](http://www.dpbolvw.net/click-3813210-12433944-1449000742000)
 
-[Hand-painted Wall Art, Prints, Wall Stickers, Wall Clocks and Frames upto 70% OFF + $15 OFF $150 with coupon: WINTER10LITB valid until 12/31] (http://www.dpbolvw.net/click-3813210-12433940-1449000570000)
+<a href="https://www.tkqlhce.com/click-101223348-15610799" target="_top">Shop now for all Tapo Smart cameras from TP-Link!</a><img src="https://www.lduhtrp.net/image-101223348-15610799" width="1" height="1" border="0"/>
 
-[Cheap Real Human Hair and Synthetic Wigs & Hair Extensions from as low as $0.30 a piece! - Save $10 on orders over $90 with coupon: HOLIDAY0OFF until 12/25] (http://www.kqzyfj.com/click-3813210-12433937-1449000414000)
+<a href="https://www.dpbolvw.net/click-101223348-15600718" target="_top">Shop now for the TP-Link AX3000 Dual Band Gigabit Wi-Fi 6 Router from TP-link!</a><img src="https://www.ftjcfx.com/image-101223348-15600718" width="1" height="1" border="0"/>
 
-[Holiday Party dresses from $29.99 + Custom size available & $10 OFF $90 with coupon: HOLIDAY0OFF valid until 12/25](http://www.dpbolvw.net/click-3813210-12433934-1449000360000)
+<a href="https://www.dpbolvw.net/click-101223348-15600684" target="_top">Shop now for all Mesh WiFi Systems from TP-Link!</a><img src="https://www.awltovhc.com/image-101223348-15600684" width="1" height="1" border="0"/>
 
-[Save up to 60% on selected Christmas Decorations](http://www.tkqlhce.com/click-1-5590799?url=http://www.argos.co.uk/static/Search/searchTerm/SHOP%2BFOR%2BFANTASTIC%2BOFFERS%2BON%2BCHRISTMAS%2BDECS.htm)
+
